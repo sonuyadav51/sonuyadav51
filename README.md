@@ -25,7 +25,7 @@ If you're seeking innovative solutions or looking to optimize your digital prese
 Connect with me:
 - [LinkedIn](https://www.linkedin.com/in/sonuyadav51/)
 - [Website](https://sonuyadav.in)
-- [Email](mailto:Sonukyadav2510@gmail.com)
+- [Email](mailto:hello@sonuyadav.in)
 
 Let's create something exceptional together!
 
