@@ -23,9 +23,9 @@ I thrive in merging technical proficiency with creative finesse. Enhancing user 
 If you're seeking innovative solutions or looking to optimize your digital presence, let's collaborate and turn visions into realities.
 
 Connect with me:
-- [LinkedIn](#) (https://www.linkedin.com/in/sonuyadav51/)
-- [Portfolio Website](#) (https://sonuyadav.in)
-- [Email](#) (Sonukyadav2510@gmail.com)
+- [LinkedIn](https://www.linkedin.com/in/sonuyadav51/)
+- [Website](https://sonuyadav.in)
+- [Email](mailto:Sonukyadav2510@gmail.com)
 
 Let's create something exceptional together!
 
